@@ -1,2 +1,0 @@
-# Travel-Blog
-Cocacola Pepsi 
